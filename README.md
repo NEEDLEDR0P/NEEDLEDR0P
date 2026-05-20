@@ -13,4 +13,4 @@
   </a>
 </p>
 
-[ayo that is sus](https://github.com/bobettedandysworld/)
+bro delete ur account [sc#rlett](https://github.com/bobettedandysworld/)?
